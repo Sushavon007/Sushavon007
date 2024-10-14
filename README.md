@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://sushavon007.github.io/Portfolio/images/sushavon's-resume.pdf](https://sushavon007.github.io/Portfolio/images/sushavon's-resume.pdf)
 
-- ⚡ Fun fact **Four wheels move the body, but two wheels move the soul—and make parking way easier!**
+- ⚡ Fun fact **"Four wheels move the body, but two wheels move the soul—and make parking way easier!"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
